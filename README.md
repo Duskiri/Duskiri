@@ -12,4 +12,4 @@ I do not feel comfortable managing a lot of social media platforms, so the only 
 <div align="center">
 dni
 </div>
-Helluva Boss; Hazbin Hotel; Nanatsu No Tazai
+Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16; Overly sexual people
