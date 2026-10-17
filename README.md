@@ -1,4 +1,4 @@
-`<div align="center">
+<div align="center">
   
 ![](https://komarev.com/ghpvc/?username=Duskiri&label=meatlovers&base=110300&abbreviated=true&color=1f1594)
 
