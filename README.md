@@ -21,7 +21,7 @@ I will not interact unless you interact first (unless I'm complimenting your des
 ${\textsf{\color{#2E2899}i will ignore the following below:}}$
 
 </div>
-Helluva Boss; Hazbin Hotel : Nanatsu No Tazai : under 16 (unless you're a friend's friend) : overly sexual people : clingy or overly reliant people : those who glorify or romanticise mental disorders, or treat them as cute or quirky; endogenic systems : consciously illiterate or anti-intellectual people ("i ain't reading allat", "holy paragraph", etc.)
+Helluva Boss; Hazbin Hotel : Nanatsu No Tazai : under 16 (unless you're a friend's friend) : overly sexual people : clingy or overly reliant people : those who glorify or romanticise mental disorders, or treat them as cute or quirky; endogenic systems : consciously illiterate or anti-intellectual people ("i ain't reading allat", "holy paragraph", etc.) : people who disrespect or enjoy harming animals, INCLUDING INSECTS
 </div>
 <div align="center">
 </div>
