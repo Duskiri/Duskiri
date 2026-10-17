@@ -7,5 +7,4 @@
 <div align="center">
 byi
 </div>
-I do not feel comfortable managing a lot of social media platforms, so the only way that you can stay in touch with me will be through Discord.
-I do not use tone tags (specifically /j and /s) unless you request me to.
+I do not feel comfortable managing a lot of social media platforms, so the only way that you can stay in touch with me will be through Discord; I do not use tone tags (specifically /j and /s) unless you request me to; 
