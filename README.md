@@ -12,4 +12,4 @@ I do not feel comfortable managing a lot of social media platforms, so the only 
 <div align="center">
 dni
 </div>
-Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16; overly sexual people; clingy or overly reliant people; those who glorify or romanticise mental disorders
+Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16 (unless you're a friend's friend); overly sexual people; clingy or overly reliant people; those who glorify or romanticise mental disorders
