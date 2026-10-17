@@ -14,6 +14,6 @@ dni
 Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16 (unless you're a friend's friend); overly sexual people; clingy or overly reliant people; those who glorify or romanticise mental disorders, or treat them as cute or quirky; endogenic systems; consciously illiterate or anti-intellectual people ("i ain't reading allat", "holy paragraph", etc.)
 </div>
 <div align="center">
-<img width = "55%" src="https://s3.getstickerpack.com/storage/uploads/sticker-pack/genshin-impact-flins/sticker_2.webp?42fd71868ec5b1e44c98474e6fd4eef2">
+<img width = "35%" src="https://s3.getstickerpack.com/storage/uploads/sticker-pack/genshin-impact-flins/sticker_2.webp?42fd71868ec5b1e44c98474e6fd4eef2">
 <div align="center">
 I am not the most sociable person, but thank you if you do go out of your way to befriend me.
