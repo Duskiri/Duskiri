@@ -6,17 +6,17 @@
 <div align="center">
 byi
 </div>
-I will not interact unless you interact first (unless I'm complimenting your design!); I do not feel comfortable managing a lot of social media platforms, so the only way that you can stay in touch with me will be through Discord; I do not use tone tags (specifically /j and /s) unless you explicitly request me to; I have a very low social battery and may zone out or afk without warning; Please do not approach me just to roleplay shipping, I do not engage in anything involving ships unless we are close friends; I am VERY silly and playful with friends, but that is not my personality 24/7 and there is much more to me than my dumb shenanigans 
+I will not interact unless you interact first (unless I'm complimenting your design!) : I do not feel comfortable managing a lot of social media platforms, so the only way that you can stay in touch with me will be through Discord : I do not use tone tags (specifically /j and /s) unless you explicitly request me to : I have a very low social battery and may zone out or afk without warning : Please do not approach me just to roleplay shipping, I do not engage in anything involving ships unless we are close friends : I am VERY silly and playful with friends, but that is not my personality 24/7 and there is much more to me than my dumb shenanigans 
 </div>
 <div align="center">
 dni
 </div>
-Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16 (unless you're a friend's friend); overly sexual people; clingy or overly reliant people; those who glorify or romanticise mental disorders, or treat them as cute or quirky; endogenic systems; consciously illiterate or anti-intellectual people ("i ain't reading allat", "holy paragraph", etc.)
+Helluva Boss; Hazbin Hotel : Nanatsu No Tazai : under 16 (unless you're a friend's friend) : overly sexual people : clingy or overly reliant people : those who glorify or romanticise mental disorders, or treat them as cute or quirky; endogenic systems : consciously illiterate or anti-intellectual people ("i ain't reading allat", "holy paragraph", etc.)
 </div>
 <div align="center">
 interests!
 </div>
-writing; drawing/painting; coding (java, minecraft modding); bio/environmental science; paleontology; mythology/folklore; literature; psychology
+writing : drawing/painting : coding (java, minecraft modding) : bio/environmental science : paleontology : mythology/folklore : literature : psychology
 </div>
 <div align="center">
 <div align="center">
