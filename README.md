@@ -22,4 +22,4 @@ writing : drawing/painting : coding (java, minecraft modding) : bio/environmenta
 <div align="center">
 <img width = "25%" src="https://s3.getstickerpack.com/storage/uploads/sticker-pack/genshin-impact-flins/sticker_2.webp?42fd71868ec5b1e44c98474e6fd4eef2">
 <div align="center">
-I am not the most sociable person, but thank you if you do go out of your way to befriend me. You'll get as much as you give.
+I am not the most sociable person, but thank you if you do go out of your way to befriend or learn more about me. You'll get as much as you give.
