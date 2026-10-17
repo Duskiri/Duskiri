@@ -37,7 +37,7 @@ You are absolutely welcome to ask me what exactly I dislike about them as long a
 ${\textsf{\color{#2E2899}interests!}}$
 
 </div>
-writing : drawing/painting : coding (java, minecraft modding) : bio/environmental science : paleontology : mythology/folklore : literature : psychology : culinary
+writing : drawing/painting : coding (java, minecraft modding) : bio/environmental science : palaeontology : mythology/folklore : literature : psychology : culinary
 <div></div>
 <div></div>
 <div align="center">
