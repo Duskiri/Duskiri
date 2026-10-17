@@ -30,7 +30,7 @@ Helluva Boss; Hazbin Hotel : Nanatsu No Tazai : under 16 (unless you're a friend
 ${\textsf{\color{#2E2899}interests!}}$
 
 </div>
-writing : drawing/painting : coding (java, minecraft modding) : bio/environmental science : paleontology : mythology/folklore : literature : psychology
+writing : drawing/painting : coding (java, minecraft modding) : bio/environmental science : paleontology : mythology/folklore : literature : psychology : culinary
 </div>
 <div align="center">
 </div>
