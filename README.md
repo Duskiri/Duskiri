@@ -1,6 +1,6 @@
 `<div align="center">
   
-![](https://komarev.com/ghpvc/?username=Duskiri&label=meat lovers&base=110300&abbreviated=true&color=1f1594)
+![](https://komarev.com/ghpvc/?username=Duskiri&label=meatlovers&base=110300&abbreviated=true&color=1f1594)
 
 </div>
 
