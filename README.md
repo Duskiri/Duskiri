@@ -24,6 +24,11 @@ ${\textsf{\color{#2E2899}dni:}}$
 Helluva Boss; Hazbin Hotel : Nanatsu No Tazai : under 16 (unless you're a friend's friend) : overly sexual people : clingy or overly reliant people : those who glorify or romanticise mental disorders, or treat them as cute or quirky; endogenic systems : consciously illiterate or anti-intellectual people ("i ain't reading allat", "holy paragraph", etc.) : people who disrespect or enjoy harming animals, <ins> including fish and invertebrates</ins> : ai supporters
 </div>
 <div align="center">
+  
+  ${\textsf{\color{#2E2899}on thin ice:}}$
+  
+</div>
+TADC : SaneGiyuu shippers : ShadowRecluse shippers : SilentLily shippers
 </div>
 <div align="center">
   
