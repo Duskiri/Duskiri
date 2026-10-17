@@ -10,6 +10,10 @@ byi
 I do not feel comfortable managing a lot of social media platforms, so the only way that you can stay in touch with me will be through Discord; I do not use tone tags (specifically /j and /s) unless you request me to
 
 <div align="center">
+iwc
+</div>
+
+<div align="center">
 dni
 </div>
-Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16; Overly sexual people
+Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16; overly sexual people; clingy or overly reliant people; those who glorify or romanticise mental disorders
