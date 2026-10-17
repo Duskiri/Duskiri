@@ -28,7 +28,7 @@ Helluva Boss; Hazbin Hotel : Nanatsu No Tazai : under 16 (unless you're a friend
   ${\textsf{\color{#2E2899}on thin ice (you can still talk with me, but I may not enjoy discussing these topics):}}$
   
 </div>
-TADC : SaneGiyuu shippers : ShadowRecluse shippers : SilentLily shippers
+TADC : SaneGiyuu : ShadowRecluse : SilentLily
 </div>
 <div align="center">
   
