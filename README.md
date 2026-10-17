@@ -11,5 +11,5 @@ I will not interact unless you interact first; I do not feel comfortable managin
 <div align="center">
 dni
 </div>
-Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16 (unless you're a friend's friend); overly sexual people; clingy or overly reliant people; those who glorify or romanticise mental disorders
+Helluva Boss; Hazbin Hotel; Nanatsu No Tazai; under 16 (unless you're a friend's friend); overly sexual people; clingy or overly reliant people; those who glorify or romanticise mental disorders; endogenic systems
 </div>
