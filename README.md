@@ -27,7 +27,7 @@ Helluva Boss; Hazbin Hotel : Nanatsu No Tazai : under 16 (unless you're a friend
   ${\textsf{\color{#2E2899}on thin ice (not a hard no, but I don’t typically enjoy discussing or engaging in these):}}$
   
 </div>
-TADC : SaneGiyuu : ShadowRecluse : SilentLily : SilentFae
+TADC : SaneGiyuu : ShadowRecluse : SilentLily : SilentFae : VarFlins
 <div></div>
 You are absolutely welcome to ask me what exactly I dislike about them as long as you do not start trying to make me change my mind. I am entitled to my own opinion as you are entitled to yours. 
 <div></div>
