@@ -9,10 +9,10 @@
 </div>
 <div align="center">
   
-${\textsf{\color{#2E2899}byi}}$
+${\textsf{\color{#2E2899}byi (This is not long because I want to feel special or anything, this is long so that you don't get mad at me if I act or respond in a certain way lol)}}$
 
 </div>
-This is not long because I want to feel special or anything, this is long so that you don't get mad at me if I act or respond in a certain way lol : I will not interact unless you interact first (unless I'm complimenting your design!) : I do not feel comfortable managing a lot of social media platforms, so the only way that you can stay in touch with me will be through Discord : I do not use tone tags (specifically /j and /s) unless you explicitly request me to : I have a very low social battery and may zone out or afk without warning : Please do not approach me just to roleplay shipping, I do not engage in anything involving ships unless we are close friends : I am VERY silly and playful with friends, but that is not my personality 24/7 and there is much more to me than my idiotic shenanigans. Do not dumb me down.
+I will not interact unless you interact first (unless I'm complimenting your design!) : I do not feel comfortable managing a lot of social media platforms, so the only way that you can stay in touch with me will be through Discord : I am friendly, but I am a lot of work to really get to know or befriend; don't blame yourself if we don't click, I'm just very picky! : I do not use tone tags (specifically /j and /s) unless you explicitly request me to : I have a very low social battery and may zone out or afk without warning : Please do not approach me just to roleplay shipping, I do not engage in anything involving ships unless we are close friends : I am VERY silly and playful with friends, but that is not my personality 24/7 and there is much more to me than my idiotic shenanigans.
 <div></div>
 <div></div>
 <div align="center">
