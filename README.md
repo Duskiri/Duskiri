@@ -20,7 +20,7 @@ I type a LOT at times. If you make fun of me over that or for whatever reason di
   ${\textsf{\color{#2E2899}dni}}$
 
 </div>
-Helluva Boss; Hazbin Hotel : Nanatsu No Tazai : under 16 (unless you're a friend's friend) : overly sexual people : clingy or overly reliant people : those who glorify or romanticise mental disorders, or treat them as cute or quirky; even if it’s humour as a coping mechanism, it makes me uncomfortable regardless : endogenic systems : those who demonise cluster b disorders or consider them synonymous to abusive people : consciously illiterate or anti-intellectual people ("i ain't reading allat", "holy paragraph", etc.) : those who disrespect or enjoy harming animals, <ins> including fish and invertebrates</ins> : ai supporters
+Helluva Boss; Hazbin Hotel : Nanatsu No Taizai : under 16 (unless you're a friend's friend) : overly sexual people : clingy or overly reliant people : those who glorify or romanticise mental disorders, or treat them as cute or quirky; even if it’s humour as a coping mechanism, it makes me uncomfortable regardless : endogenic systems : those who demonise cluster b disorders or consider them synonymous to abusive people : consciously illiterate or anti-intellectual people ("i ain't reading allat", "holy paragraph", etc.) : those who disrespect or enjoy harming animals, <ins> including fish and invertebrates</ins> : ai supporters
 </div>
 <div></div>
 <div></div>
